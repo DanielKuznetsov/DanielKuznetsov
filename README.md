@@ -1,1 +1,1 @@
-![Teddy and Theo](https://imgur.com/a/EUm8tEJ)
+![Teddy and Theo](https://github.com/DanielKuznetsov/DanielKuznetsov/raw/main/dogs2.jpg)
